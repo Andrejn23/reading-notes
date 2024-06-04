@@ -1,7 +1,7 @@
 # reading-notes
 cambiar despues
 ## Growth Mindset
-[Mi Portafolio] ()
+[Mi portafolio]
 
 ## Qué es el “Growth Mindset”?
 Desde mi punto de vista, es una manera de siempre tener una motivación propia para poder lograr cumplir los objetivos que uno mismo puede tener, más allá de eso, puede servir para que nunca dejes de creer en ti mismo y las cosas que puedes lograr con esfuerzo propio.
